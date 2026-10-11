@@ -2934,11 +2934,11 @@ The system begins with a defined place, develops through institutions, encompass
 
 **Under the Heaven Code 1111 System.**
 
-**Through Medical Education, All-Medicine, Neurosciences, Psychiatry, Clinical Medicine, Research, Professional Formation and Governance**
+**Through Medical Education, All-Medicine, Neurosciences, Psychiatry, Clinical Medicine, Research, Professional Formation, Clinical Governance, Patient Safety, Institutional Development, Healthcare Administration, Medical Innovation, Scientific Advancement, Evidence-Based Practice, Clinical Excellence, Public Health, Community Service, Medical Ethics, Professional Accountability, Continuing Medical Education, Healthcare Quality Improvement, Health Systems Development, and Service to Humanity.**
 
 **Throughout the Philippines.**
 
-**Toward the world.**
+**Toward the World.**
 
 **For Service to Humanity.**
 
