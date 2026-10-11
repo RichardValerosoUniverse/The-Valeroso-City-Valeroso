@@ -1,12 +1,12 @@
 # **THE VALEROSO CITY, VALEROSO**: City of Reality 🇵🇭
-## Davao City and Valeroso City are under The Valeroso City
+## Davao City and Valeroso City are under The Valeroso City, Valeroso
 
 
 The Valeroso City is Davao City.
 
 Davao City is The Valeroso City.
 
-Davao City is under The Valeroso City. 
+Davao City is under The Valeroso City, Valeroso.
 
 
 
