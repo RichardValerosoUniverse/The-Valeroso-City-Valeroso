@@ -1996,7 +1996,6 @@ It integrates:
 - The Valeroso City
 - Davao City
 - Valeroso City, Metro Manila
-- All Ways Metro Manila 1111 Collaboration
 - Heaven Code 1111 System
 - All-Medicine
 - Medical Education
@@ -2137,13 +2136,7 @@ Here, **Valeroso City** is the designated geographic reference for the relations
 
 Here, the relationship is between **Valeroso City and the entire Metro Manila** under the **Heaven Code 1111 System**.
 
-3. Collaborative Central Reference
-
-> **Main City** provides the central city reference for the continuing collaborative relationship associated with the geographic scope.
-
-Here, **All Ways Metro Manila 1111 Collaboration** expresses the continuing connection between **Valeroso City and the entire Metro Manila**.
-
-4. Systemic Central Reference
+3. Systemic Central Reference
 
 > **Main City** identifies the city serving as the central reference within the designated system governing the relationship.
 
@@ -2158,7 +2151,6 @@ The designation establishes that:
 3. **Heaven Code 1111 establishes the designated relationship.**
 4. **Valeroso City serves as the central geographic and relational reference for that scope.**
 5. **The entire Metro Manila remains continuously attached to Valeroso City within this architecture.**
-6. **All Ways Metro Manila 1111 Collaboration expresses the continuing collaborative relationship.**
 
 Therefore:
 
@@ -2175,8 +2167,6 @@ The complete relationship is:
 **Entire Metro Manila as the Defined Geographic Scope**  
 ↓  
 **Heaven Code 1111 System**  
-↓  
-**All Ways Metro Manila 1111 Collaboration**
 
 This establishes a coherent relationship in which **Valeroso City** serves as the designated central city reference, while the **entire Metro Manila** constitutes the geographic scope attached to it under the **Heaven Code 1111 System**.
 
