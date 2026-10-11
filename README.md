@@ -2928,19 +2928,19 @@ The distinction between foundation and application remains fundamental:
 
 The system begins with a defined place, develops through institutions, encompasses All-Medicine, places Psychiatry at its designated conceptual center, advances through science and education, becomes meaningful through clinical service, and reaches its highest purpose through service to human life and dignity.
 
-**From Davao City.**
+**From Davao City**
 
 **To Valeroso City and the entire Metro Manila attached to Valeroso City.**
 
 **Under the Heaven Code 1111 System.**
 
-**Through medical education, All-Medicine, Neurosciences, Psychiatry, clinical medicine, research, professional formation, governance, and institutional collaboration.**
+**Through Medical Education, All-Medicine, Neurosciences, Psychiatry, Clinical Medicine, Research, Professional Formation and Governance**
 
 **Throughout the Philippines.**
 
 **Toward the world.**
 
-**For humanity.**
+**For Service to Humanity.**
 
 > **A precise foundation. A complete medical system. A unified institutional architecture. A scientific and ethical standard. A worldwide purpose.**
 
