@@ -3044,7 +3044,7 @@ And ultimately:
 
 > **© Copyright 2026 and Beyond** 🇵🇭. **Psychiatrist Richard Madriñan Valeroso, MD, FPPA and Richard Madriñan Valeroso.** **ALL RIGHTS RESERVED.** 🇵🇭
 
-> This copyright notice applies to the original works, writings, articles, titles, and systems authored by Super Very Yours Truly: Richard Madriñan Valeroso
+> This copyright notice applies to the original works, writings, articles, titles, and systems authored by Super Very Yours Truly: Richard Madriñan Valeroso 🇵🇭
 
 1. The Arch of Centuries: Authored and Written by UST and The Richard Madriñan Valeroso University 🇵🇭
 2. The Richard Madriñan Valeroso University (UST) is University of Santo Tomas 🇵🇭
