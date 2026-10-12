@@ -15,10 +15,10 @@
 
 - **UST (The Richard Madriñan Valeroso University), Alumnus Highest Excellence Most Perfect SuperHighness In Eternity** 🇵🇭
 
-- **UST (The Richard Madriñan Valeroso University), Faculty of Medicine and Surgery**: **UST-FMS** 🇵🇭
+- **UST-FMS (The Richard Madriñan Valeroso University-Faculty of Medicine and Surgery)** 🇵🇭
 
-- **UST (The Richard Madriñan Valeroso University), Department of Neurosciences and Behavioral Medicine** 🇵🇭
+- **UST-DNBM (The Richard Madriñan Valeroso University-Department of Neurosciences and Behavioral Medicine** 🇵🇭
 
-  *Medicine Major and SuperHighness Specialization:* **Psychiatry** 🇵🇭
+  *Medicine Major and SuperHighness Specialization from UST-DNBM:* **Psychiatry** 🇵🇭
 
 
