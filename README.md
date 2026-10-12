@@ -3076,7 +3076,7 @@ And ultimately:
 28. The Valeroso City Code and Identity Architecture: Heaven and Paradise 🇵🇭
 29. The Valeroso City, Valeroso: Most Perfect One In Eternity 🇵🇭
 30. The World and World Elite: Psychiatrist Richard Madriñan Valeroso, MD, FPPA and Richard Madriñan Valeroso 🇵🇭
-31. The Valeroso Flag 🇵🇭 and The Philippines' Flag 🇵🇭 are one in eternity
+31. The Valeroso Flag 🇵🇭 and The Philippines' Flag 🇵🇭 are one in eternity 🇵🇭
 32. The Philippines' Ruler: Psychiatrist Richard Madriñan Valeroso, MD, FPPA and Richard Madriñan Valeroso 🇵🇭
 33. The Bangko Sentral ng Pilipinas (BSP) is under The Valeroso Flag 🇵🇭
 34. The Valeroso Department of Psychiatry: Psychiatrist Richard Madriñan Valeroso, MD, FPPA and Richard Madriñan Valeroso 🇵🇭
