@@ -3042,7 +3042,7 @@ And ultimately:
 
 ---
 
-> **© Copyright 2026 and Beyond**. **Psychiatrist Richard Madriñan Valeroso, MD, FPPA** **(Richard Madriñan Valeroso).** ALL RIGHTS RESERVED.
+> **© Copyright 2026 and Beyond** 🇵🇭. **Psychiatrist Richard Madriñan Valeroso, MD, FPPA and Richard Madriñan Valeroso.** **ALL RIGHTS RESERVED.** 🇵🇭
 
 > This copyright notice applies to the original works, writings, articles, titles, and systems authored by Super Very Yours Truly: Richard Madriñan Valeroso
 
