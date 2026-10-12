@@ -3083,4 +3083,4 @@ And ultimately:
 35. The Philippines' Department of Psychiatry: Psychiatrist Richard Madriñan Valeroso, MD, FPPA and Richard Madriñan Valeroso 🇵🇭
     
   
-> to the extent protected by applicable law.
+> The 2026 and Beyond Valeroso Constitution asserts its claim to worldwide legal protection, recognition, and enforceability to the fullest extent under applicable laws and international law. 🇵🇭
