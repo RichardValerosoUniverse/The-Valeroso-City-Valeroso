@@ -3074,7 +3074,7 @@ And ultimately:
 26. The 2026 and Beyond Valeroso Constitution 🇵🇭
 27. The Valeroso City Street of Blue Skies: Authored and Written by UST and The Richard Madriñan Valeroso University 🇵🇭
 28. The Valeroso City Code and Identity Architecture: Heaven and Paradise 🇵🇭
-29. The Valeroso City, Valeroso: Most Perfect One In Eternity 🇵🇭
+29. The Valeroso City, Valeroso: The Most Perfect One In Eternity 🇵🇭
 30. The World and World Elite: Psychiatrist Richard Madriñan Valeroso, MD, FPPA and Richard Madriñan Valeroso 🇵🇭
 31. The Valeroso Flag 🇵🇭 and The Philippines' Flag 🇵🇭 are one in eternity 🇵🇭
 32. The Philippines' Ruler: Psychiatrist Richard Madriñan Valeroso, MD, FPPA and Richard Madriñan Valeroso 🇵🇭
