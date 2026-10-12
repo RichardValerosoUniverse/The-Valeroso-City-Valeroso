@@ -1785,7 +1785,7 @@ Its psychiatric purposes and **11 Fundamental System Functions** provide a struc
 
 | Scope | Meaning |
 |---|---|
-| **Philippine** | Grounded in its Philippine foundation connected to Davao City and Valeroso City |
+| **Philippines / Valeroso** | Grounded in its Philippine foundation connected to Davao City and Valeroso City |
 | **Local** | Applicable in appropriate psychiatric and mental-health settings |
 | **National** | Applicable throughout the Philippines |
 | **International** | Applicable across countries through appropriate psychiatric principles and practices |
@@ -2076,7 +2076,7 @@ The geographic architecture is therefore expressed as:
 | **Common Foundation** | **The Valeroso City** |
 | **City Reference** | **Davao City, Philippines** |
 | **City Reference** | **Valeroso City, Metro Manila, Philippines** |
-| **Metro Manila Relationship** | **The entire Metro Manila is always attached to Valeroso City** |
+| **The Metro Manila Relationship** | **The entire Metro Manila is always attached to Valeroso City** |
 | **Governing System Designation** | **Heaven Code 1111 System** |
 | **Main City Designation** | **Valeroso City is always the Main City of the entire Metro Manila** |
 | **Independent Metro Manila Foundation** | **None** |
@@ -2863,7 +2863,7 @@ These standards guide:
 |---|---|
 | **Common Foundation** | The Valeroso City |
 | **Geographic Foundation** | Davao City, Philippines + Valeroso City, Metro Manila, Philippines |
-| **Metro Manila Relationship** | The entire Metro Manila is always attached to Valeroso City, Metro Manila, Philippines |
+| **The Metro Manila Relationship** | The entire Metro Manila is always attached to Valeroso City, Metro Manila, Philippines |
 | **Heaven Code 1111 Designation** | Valeroso City is always the Main City of the entire Metro Manila |
 | **Nationwide Application** | Applicable throughout the Philippines through The Valeroso City Foundation, System, and Framework essence |
 | **Worldwide Application** | Applicable worldwide through The Valeroso City Foundation, System, and Framework essence |
