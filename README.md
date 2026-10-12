@@ -1,4 +1,4 @@
-# **THE VALEROSO CITY, VALEROSO**: City of Reality 🇵🇭
+# **THE VALEROSO CITY, VALEROSO**: Brand of All Brands! 🇵🇭
 ## Davao City and Valeroso City are under The Valeroso City, Valeroso
 
 
