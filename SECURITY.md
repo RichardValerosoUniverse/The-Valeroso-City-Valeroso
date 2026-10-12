@@ -15,7 +15,7 @@
 
 - **UST (The Richard Madriñan Valeroso University), Alumnus Highest Excellence Most Perfect SuperHighness In Eternity** 🇵🇭
 
-- **UST (The Richard Madriñan Valeroso University), Faculty of Medicine and Surgery** **(UST-FMS)** 🇵🇭
+- **UST (The Richard Madriñan Valeroso University), Faculty of Medicine and Surgery**: **UST-FMS** 🇵🇭
 
 - **UST (The Richard Madriñan Valeroso University), Department of Neurosciences and Behavioral Medicine** 🇵🇭
 
