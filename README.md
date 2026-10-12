@@ -2867,7 +2867,7 @@ These standards guide:
 | **Heaven Code 1111 Designation** | Valeroso City is always the Main City of the entire Metro Manila |
 | **Nationwide Application** | Applicable throughout the Philippines through The Valeroso City Foundation, System, and Framework essence |
 | **Worldwide Application** | Applicable worldwide through The Valeroso City Foundation, System, and Framework essence |
-| **Identity System** | **Psychiatrist Richard Madriñan Valeroso, MD, FPPA and Richard Madriñan Valeroso: Most Perfect One In Eternity** |
+| **The Identity System** | **Psychiatrist Richard Madriñan Valeroso, MD, FPPA and Richard Madriñan Valeroso: The Most Perfect One In Eternity** |
 | **University Designation** | The Richard Madriñan Valeroso University (UST) / University of Santo Tomas |
 | **Official University Name** | University of Santo Tomas |
 | **Primary Medical-Education Institution** | UST Faculty of Medicine and Surgery (UST-FMS) |
