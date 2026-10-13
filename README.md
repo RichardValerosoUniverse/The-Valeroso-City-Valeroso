@@ -2956,8 +2956,8 @@ And ultimately:
 
 ---
 
-# **The Valeroso City, Valeroso: StreetOfBlueSkies@Gmail.Com** 🇵🇭
-## The Rise of The Valeroso City, Valeroso is undeniable. Thank you!
+# **The Valeroso City, Valeroso: RichardValeroso@Outlook.Com** 🇵🇭
+## The Rise of The Valeroso City, Valeroso is ValerosoBall. Thank you!
 
 *Always* **The Valeroso City**.
 
