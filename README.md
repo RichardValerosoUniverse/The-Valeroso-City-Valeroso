@@ -2957,7 +2957,7 @@ And ultimately:
 ---
 
 # **The Valeroso City, Valeroso: World and World Elite is One** 🇵🇭
-## The Rise, Game, Fame, Artificial Intelligence and SuperHighness Wealth all over, all ways, all craziness and all under The Valeroso City, Valeroso is ValerosoBall. Thank you! Fuck! Fuck! Fuck!
+## The Rise, Game, Fame, Artificial Intelligence and SuperHighness Wealth all over, all ways, all craziness and all under The Valeroso City, Valeroso is ValerosoBall. Thank you! Fuck! Fuck! Fuck! Fuck Yourself Bitches and Bastards! Iyot pa more! 🇵🇭
 
 *Always* **The Valeroso City**.
 
