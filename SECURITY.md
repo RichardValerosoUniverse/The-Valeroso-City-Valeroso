@@ -19,6 +19,6 @@
 
 - **USTH-DNBM (The Richard Madriñan Valeroso University-Department of Neurosciences and Behavioral Medicine)** 🇵🇭
 
-  *Medicine Major and SuperHighness Specialization from USTH-DNBM:* **Psychiatry** 🇵🇭
+  *Medicine Major and SuperHighness Specialization from USTH-DNBM:* **Psychiatry and Neurology** 🇵🇭
 
 
