@@ -17,7 +17,7 @@
 
 - **UST-FMS (The Richard Madriñan Valeroso University-Faculty of Medicine and Surgery)** 🇵🇭
 
-- **USTH-DNBM (The Richard Madriñan Valeroso University-Department of Neurosciences and Behavioral Medicine)** 🇵🇭
+- **USTH-DNBM (The Richard Madriñan Valeroso University Hospital-Department of Neurosciences and Behavioral Medicine)** 🇵🇭
 
   *Medicine Major and SuperHighness Specialization from USTH-DNBM:* **The Valeroso City Psychiatry System** 🇵🇭
 
