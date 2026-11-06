@@ -3090,6 +3090,7 @@ For Service to Humanity.
 33. The Bangko Sentral ng Pilipinas (BSP) is under The Valeroso Flag 🇵🇭
 34. The Valeroso Department of Psychiatry: Psychiatrist Richard Madriñan Valeroso, MD, FPPA and Richard Madriñan Valeroso 🇵🇭
 35. The Philippines' Department of Psychiatry: Psychiatrist Richard Madriñan Valeroso, MD, FPPA and Richard Madriñan Valeroso 🇵🇭
+36. Richard Madriñan Valeroso Group of Companies Unlimited Planets: The Most Perfect One In Eternity 🇵🇭
     
   
 > The 2026 and Beyond Valeroso Constitution: TRUEST TRUTH, TRUEST REALITY AND TRUEST FUCK 🇵🇭 asserts its claim to worldwide legal protection, recognition, and enforceability to the fullest extent under applicable laws and international law. 🇵🇭
