@@ -3095,7 +3095,7 @@ For Service to Humanity.
 38. Suntok Sa 🌙 Is Alive and Kicking 🇵🇭
 39. Mine pa most 🇵🇭
 40. Maglulu 🇵🇭
-41. Iyota ang baboy 🇵🇭
+41. Iyota ang baboy nga mga kawatan of mga bahandi 🇵🇭
     
     
   
