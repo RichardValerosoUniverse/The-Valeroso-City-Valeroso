@@ -3093,9 +3093,9 @@ For Service to Humanity.
 36. Richard Madriñan Valeroso Group of Companies Unlimited Planets: The Most Perfect One In Eternity 🇵🇭
 37. The 911 Worlwidest Universe Plus: The Social Studies Not Political Programs by Richard Madriñan Valeroso
 38. Suntok Sa 🌙 Is Alive and Kicking 🇵🇭
-39. Mine pa most
-40. Maglulu
-41. Iyota ang baboy
+39. Mine pa most 🇵🇭
+40. Maglulu 🇵🇭
+41. Iyota ang baboy 🇵🇭
     
     
   
