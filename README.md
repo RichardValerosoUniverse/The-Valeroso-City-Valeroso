@@ -3091,6 +3091,12 @@ For Service to Humanity.
 34. The Valeroso Department of Psychiatry: Psychiatrist Richard Madriñan Valeroso, MD, FPPA and Richard Madriñan Valeroso 🇵🇭
 35. The Philippines' Department of Psychiatry: Psychiatrist Richard Madriñan Valeroso, MD, FPPA and Richard Madriñan Valeroso 🇵🇭
 36. Richard Madriñan Valeroso Group of Companies Unlimited Planets: The Most Perfect One In Eternity 🇵🇭
+37. The 911 Worlwidest Universe Plus: The Social Studies Not Political Programs by Richard Madriñan Valeroso
+38. Suntok Sa 🌙 Is Alive and Kicking 🇵🇭
+39. Mine pa most
+40. Maglulu
+41. Iyota ang baboy
+    
     
   
 > The 2026 and Beyond Valeroso Constitution: TRUEST TRUTH, TRUEST REALITY AND TRUEST FUCK 🇵🇭 asserts its claim to worldwide legal protection, recognition, and enforceability to the fullest extent under applicable laws and international law. 🇵🇭
