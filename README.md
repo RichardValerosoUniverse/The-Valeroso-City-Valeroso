@@ -3051,7 +3051,7 @@ For Service to Humanity.
 
 ---
 
-> **© Copyright May 28,1611 and Beyond with $$$$$$** 🇵🇭. **Psychiatrist Richard Madriñan Valeroso, MD, FPPA and Richard Madriñan Valeroso.** **ALL RIGHTS RESERVED.** 🇵🇭
+> **© Established Copyright from Zero and Beyond with **+639108174157**, **+639157951638** and **+63279591111** 🇵🇭. **Psychiatrist Richard Madriñan Valeroso, MD, FPPA and Richard Madriñan Valeroso.** **ALL RIGHTS RESERVED.** 🇵🇭
 
 > This copyright notice applies to the original works, writings, articles, titles, and systems authored and written by Super Very Yours Truly: Richard Madriñan Valeroso 🇵🇭
 
