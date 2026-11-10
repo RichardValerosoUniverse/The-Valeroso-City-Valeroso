@@ -3092,10 +3092,10 @@ For Service to Humanity.
 35. The Philippines' Department of Psychiatry: Psychiatrist Richard Madriñan Valeroso, MD, FPPA and Richard Madriñan Valeroso 🇵🇭
 36. Richard Madriñan Valeroso Group of Companies Unlimited Planets: The Most Perfect One In Eternity 🇵🇭
 37. The 911 Worlwidest Universe Plus: The Social Studies Not Political Programs by Richard Madriñan Valeroso
-38. Suntok Sa 🌙 Is Alive and Kicking 🇵🇭
+38. Suntok Sa Buwan Is Alive and Kicking 🇵🇭
 39. Mine pa most 🇵🇭
 40. Maglulu 🇵🇭
-41. Iyota ang baboy nga mga kawatan of mga bahandi 🇵🇭
+41. Iyota ang drakula nga mga kawatan of mga bahandi 🇵🇭
 42. I'll Be Fucking You 🇵🇭
     
     
