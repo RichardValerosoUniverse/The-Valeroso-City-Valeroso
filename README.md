@@ -3097,6 +3097,7 @@ For Service to Humanity.
 40. Maglulu 🇵🇭
 41. Iyota ang drakula nga mga kawatan of mga bahandi 🇵🇭
 42. I'll Be Fucking You 🇵🇭
+43. RichardMadriñanValeroso@DavaoCity.com is the official email address of Psychiatrist Richard Madriñan Valeroso, MD, FPPA 🇵🇭
     
     
   
