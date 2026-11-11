@@ -3051,7 +3051,7 @@ For Service to Humanity.
 
 ---
 
-> **© Established Copyright from **+639108174157**, **+639173140774** **+639157951638** and **+63279591111** Super Adunahan Established From Nan to Ñan and Ñan to Nan 🇵🇭. **Psychiatrist Richard Madriñan Valeroso, MD, FPPA and Richard Madriñan Valeroso.** **ALL RIGHTS RESERVED.** 🇵🇭Nganu man? Ang tubag: Suman. 😡
+> **© Established Copyright from **+639108174157**, **+639173140774** **+639157951638** and **+63279591111** Super Adunahan Established From Nan to Ñan and Ñan to Nan 🇵🇭. **Psychiatrist Richard Madriñan Valeroso, MD, FPPA and Richard Madriñan Valeroso.** **ALL RIGHTS RESERVED.** 🇵🇭 Nganu man? Ang tubag: Suman. 😡
 
 > This copyright notice applies to the original works, writings, articles, titles, and systems authored and written by Super Very Yours Truly: Richard Madriñan Valeroso 🇵🇭
 
