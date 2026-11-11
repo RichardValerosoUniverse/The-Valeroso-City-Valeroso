@@ -1,5 +1,5 @@
 
-*Adjudicated, Reviewed, Evaluated, Certified, Validated, Assessed, Determined, Judged, Fucked and Approved Psychiatrically and Tastefully with UST essence by Richard Madriñan Valeroso and The Richard Madriñan Valeroso University (UST):* 🇵🇭
+*Adjudicated, Reviewed, Evaluated, Certified, Validated, Assessed, Determined, Judged, Fucked and Approved Psychiatrically and Tastefully with UST essence by Richard Madriñan Valeroso and The Richard Madriñan Valeroso University (UST) with the Richard Madriñan Valeroso Calendar Official electronic mail: RichardMadriñanValeroso@DavaoCity.com 🇵🇭
 
 - **Psychiatrist Richard Madriñan Valeroso, MD, FPPA and Richard Madriñan Valeroso: The Most Perfect One In Eternity** 🇵🇭
 
