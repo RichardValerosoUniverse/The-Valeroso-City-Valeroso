@@ -3101,9 +3101,9 @@ For Service to Humanity.
 44. 404 is Friday the 13th 🇵🇭
 45. Richard Madriñan Valeroso is Super Swift in Pilipinas processor 🇵🇭
 46. Richard Madriñan Valeroso Mode Satanas Pilipinas 666 🇵🇭
-47. KristoHesus de Davao 🇵🇭
+47. KristoHesus de Davao, Psychiatrist RMV, Psychiater RMV 🇵🇭
 48. The Biggest 1 🇵🇭
-49. The Greatest Killah;🇵🇭
+49. The Greatest Killah 🇵🇭
 50. Summus Medicus Mentis et Animi 🇵🇭
 51. Inawayan City belongs always to The Valeroso City, Valeroso 🇵🇭
     
