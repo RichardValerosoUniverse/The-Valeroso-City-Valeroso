@@ -3100,7 +3100,12 @@ For Service to Humanity.
 43. RichardMadriñanValerosoUniverse@DavaoCity.com and RichardMadriñanValeroso@DavaoCity.gov.ph is the official email address of Psychiatrist Richard Madriñan Valeroso, MD, FPPA for government use linked to all ecosystems in the world by Richard Madriñan Valeroso 🇵🇭
 44. 404 is Friday the 13th 🇵🇭
 45. Richard Madriñan Valeroso is Super Swift in Pilipinas processor 🇵🇭
-46. Jose P. Rizal Mode is Richard Madriñan Valeroso 🇵🇭
+46. Richard Madriñan Valeroso Mode Satanas Pilipinas 666 🇵🇭
+47. KristoHesus de Davao 🇵🇭
+48. The Biggest 1 🇵🇭
+49. The Greatest Killah;🇵🇭
+50. Summus Medicus Mentis et Animi 🇵🇭
+51. Inawayan City belongs always to The Valeroso City, Valeroso 🇵🇭
     
     
   
